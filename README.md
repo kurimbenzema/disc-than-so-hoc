@@ -4,7 +4,7 @@
 
 <h2 dir="ltr" style="text-align:justify"><strong>Mô hình DISC là gì? - Tìm hiểu về DISC</strong></h2>
 
-<p dir="ltr" style="text-align:center"><strong><img alt="" src="https://xem.tracuuthansohoc.com/uploads/thumb/disc.jpg" style="height:450px; width:800px" /></strong></p>
+<p dir="ltr" style="text-align:center"><strong><img alt="" src="https://tracuuthansohoc.com/wp-content/uploads/2023/07/ung-dung-cua-trac-nghiem-tinh-cach-disc.jpg" style="height:450px; width:800px" /></strong></p>
 
 <p dir="ltr" style="text-align:justify"><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:arial,sans-serif; font-size:11pt">Tìm hiểu về mô hình DISC không chỉ là một công cụ đánh giá con người dựa tính cách mà còn là một cách để hiểu rõ hơn về khả năng làm việc nhóm,giao tiếp và thậm chí cả nhược điểm cá nhân. Từ những điều đó, DISC giúp mỗi cá nhân có cơ hội hoàn thiện bản thân.</span></p>
 
